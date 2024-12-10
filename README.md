@@ -1,5 +1,5 @@
 # MONEY DOGS UNLIMITED COINS HACK 
-<img src="https://github.com/OptimalGrowYT/NOTPIXEL-ADS_WATCHER/blob/main/PNG" alt="توضیح تصویر" width="1280" height="520">
+<img src="https://github.com/OptimalGrowYT/MONEY-DOGS-HACK-VIP/blob/main/PREVIEW.png" alt="توضیح تصویر" width="1280" height="520">
 
 ## [JOIN OUR TELEGRAM :](https://t.me/optimalgrowyt)
 ### [JOIN MONEY DOGS AIRDROP :](https://t.me/money_dogs_bot/money_dogs?startapp=8JjI4ZRQ)
